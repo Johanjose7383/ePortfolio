@@ -15,7 +15,7 @@ communication concepts are ask questions
 
 4.Communicate effectively in a professional context
 - I was working as a retail manager in my previous job. End of the year stock taking is a big task and time consuming. Since there were a lot of erros in the year before, I have requested approval for overtime from my manager. I have introduced a more efficient system to records the stocks which inturn reduces the discrepancies. Follow the link to view the strategy of effective communication that I have followed.
-- 	[Strategy](https://www.example.com)
+- 	[Strategy](file:///C:/Users/Johan/OneDrive/Desktop/strategy.html)
 
 
 
