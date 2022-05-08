@@ -3,10 +3,10 @@
 ##Evidence is provided here of the following objectives:
 
 1.Explain communication concepts and strategies.
-communication concepts are ask questions
+- A communication plan is a business marketing technique that assists businesses in aligning their communication and producing relevant, consistent messages. This  may be concentrate on internal or external communications, or may be a define for a specific project. The communication strategy often describes the plan for conveying a message to a target audience, as well as the objective, how to complete the tasks, and the anticipated business consequences. Communication plans may serve as the foundation for your company's marketing and commercial strategy.
 
 2.Show confidence and skills in oral communications and presentations
- -I am studying bachelors in Inforamtion Technology, I have a subject called proffessional communicational skills for ICT and  have a presentation for augmented reality in that subject. The presentation was really good and was impressed by everyone in the class.
+ - I am studying bachelors in Inforamtion Technology, I have a subject called proffessional communicational skills for ICT and  have a presentation for augmented reality in that subject. The presentation was really good and was impressed by everyone in the class.
 
 3.Work effectively as part of a team
 - In my last position as a sales assistant for Jumbo Traders, Our Manager asked us if we could a sales campaign to promote the sales. We were all worked together to plan and designed posters with some attracting offers marketed in the social medias like facebook, instagram etc. We were also distributed some handouts as well. This worked very well due to the promotional offer and the reach received from our campaign, the sales went up to the peak. We were all super excited and our manager was extremely happy and provided us some cash bonus. 
